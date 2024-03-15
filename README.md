@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hardikbhawnani23@gmail.com**
 
-- 📄 Know about my experiences [https://heyzine.com/flip-book/d5784befc1.html](https://heyzine.com/flip-book/d5784befc1.html)
+- 📄 Know about my experiences [https://heyzine.com/flip-book/931f9d235b.html)
 
 - ⚡ Fun fact **It’s all 0’s and 1’s**
 
